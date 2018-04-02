@@ -5,3 +5,7 @@
 
 
 THIS SOFTWARE [ DRIVE INCREASER ] IS MEANT FOR INCREASING THE STORAGE OF YOUR PENDRIVE/SD-CARD/MEMORY STICK ETC
+
+
+
+[![N|Solid](https://akashmahanty.000webhostapp.com/ultimate%20drive%20increaser%20exe.gif)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
