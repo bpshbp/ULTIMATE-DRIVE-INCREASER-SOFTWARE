@@ -19,5 +19,5 @@
 
 [![N|Solid](https://d2t1xqejof9utc.cloudfront.net/screenshots/pics/3c2bfcf9dbfed0daa6fd8cae9ba41a26/large.gif)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
 [![N|Solid](https://d2t1xqejof9utc.cloudfront.net/screenshots/pics/3c2bfcf9dbfed0daa6fd8cae9ba41a26/large.gif)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://d2t1xqejof9utc.cloudfront.net/screenshots/pics/3c2bfcf9dbfed0daa6fd8cae9ba41a26/large.gif)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://d2t1xqejof9utc.cloudfront.net/screenshots/pics/3c2bfcf9dbfed0daa6fd8cae9ba41a26/large.gif)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyMjQ5MjMwOTc.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQ0NTUyMjMzMTc.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
