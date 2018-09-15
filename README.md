@@ -6,3 +6,4 @@
 
 http://driveincreaser.xp3.biz/
 # Mail me  at driveincreaser@cyberdude.com for help or any sort of request.
+Copyright © 2018 Drive Increaser LLC. All rights reserved.
