@@ -2,7 +2,6 @@
 # > THIS SOFTWARE [ DRIVE INCREASER ] IS MEANT FOR INCREASING THE STORAGE OF YOUR PENDRIVE/SD-CARD/MEMORY STICK ETC 
 
  
-[![N|Solid](https://raw.githubusercontent.com/DRIVE-INCREASER/data/master/drive%20increaser.png)](http://driveincreaser.xp3.biz/)
 
 http://driveincreaser.xp3.biz/
 # Mail me  at driveincreaser@cyberdude.com for help or any sort of request.
